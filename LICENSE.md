@@ -1,4 +1,4 @@
-# 
+# Lightweight Filmora presets for Mac OS | Premium Filmora presets for PC Windows. Featuring noise-reduction and green-screen-keying — optimized for maximum performance on every platform.
 
 
 
